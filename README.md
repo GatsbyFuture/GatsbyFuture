@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Eldorbek but my nick name is Gatsby
+- 👋 Hi, I’m Eldorbek but my nick name is Jack
 - 👀 I’m interested in invation and creativity unusual things
 - 🌱 I’m currently learning the language english and programming
 - 💞️ I’m looking to collaborate on Mishelen and Tesla
