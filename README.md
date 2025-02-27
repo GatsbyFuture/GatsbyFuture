@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Eldorbek and my nick name is Jack
-- 👀 I'm interested in inventing and expanding my knowledge.
+- 👀 I enjoy inventing and learning new things to expand my knowledge.
 - 🌱 I'm learning teamwork.
 - 💞️ :)
 - 📫 How to reach me raxmatoveldor37@gmail.com
